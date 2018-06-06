@@ -1,1 +1,1 @@
-# presentacion-1a-formacion-dual-CGI
+# Presentación de mi primera experiencia de formación dual en la empresa CGI
